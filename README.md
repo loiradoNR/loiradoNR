@@ -1,16 +1,16 @@
-## Hi there 👋
+## *oiii, bem vindo!🤎*
 
-<!--
+
 **loiradoNR/loiradoNR** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Sou do estado de SP.
+- Faço parte do Interact 4470💙
+- 20y
+- Contato: marianafagnani25@gmail.com
+- Pronomes: ela/ dela
+- Faculdade de Odonto💋FOA
+
+  ![](https://media1.tenor.com/m/drIYxSd6pdIAAAAC/yes-dog.gif)
+
